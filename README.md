@@ -1,4 +1,4 @@
-# Jimbo's Big Naturals (a Balatro mod)... now on 2.0!
+# Jimbo's Big Naturals - Malverk Compatibility Added
 
 <img src="https://i.imgur.com/GqlqXjt.png" alt="A banner saying Jimbo's Big Naturals with some Balatro card art but all the jokers have boobies.">
 
